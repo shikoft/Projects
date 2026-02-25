@@ -46,5 +46,5 @@ YÊU CẦU HỆ THỐNG
 
 ========================================
 
-Liên hệ: (bạn có thể thêm email nếu muốn)
+Liên hệ: luutanloc36Sei@gmail.com
 
